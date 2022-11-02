@@ -1,1 +1,3 @@
-# habits_info
+# Refocused
+
+Email: retelle.info@gmail.com
